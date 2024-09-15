@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @yoda-3x3
+- 👀 I’m interested in Aerospace engineering
+- 🌱 I’m currently in Middle school
+- 💞️ I’m looking to collaborate on anything
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: i am currently making a rocket
